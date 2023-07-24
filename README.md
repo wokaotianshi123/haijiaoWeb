@@ -1,8 +1,8 @@
  最新回家地址 👋 (最新更新时间2023-07-18)
 
-海角乱伦社区 网页版 最新回家地址  https://web1.dyclub.co/
+海角乱伦社区 网页版 最新回家地址  haijiao.one
 
-海角乱伦社区 app 最新回家地址 https://2c4e.srfckj.com
+海角乱伦社区 app 最新回家地址 https://ad.srfckj.com
 
 多尝试切换移动，电信，联通等网络打开网站
 
