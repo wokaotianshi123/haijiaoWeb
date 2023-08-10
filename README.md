@@ -14,7 +14,7 @@
 
 海外网页版域名  https://haij.cc   (需要科学🔬上网)
 
-海外版app域名  https://haijiao.fun  (需要科学🔬上网)
+ 海外 版 app域名  https://haijiao.fun  (需要科学🔬上网)
 
 官方 potato 交流群  ： https://plkt.org/HJSQ0  （链接：https://www.mmdpt.org/ 如果无法下载，该国外软件可在某宝和拼多多购买下载安装，而且不需要翻墙就能使用哦）
 
