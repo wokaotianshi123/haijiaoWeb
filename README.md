@@ -16,7 +16,7 @@
 
 官方 potato 交流群  ： https://plkt.org/HJSQ0  （链接：https://www.mmdpt.org/ 如果无法下载，该国外软件可在某宝和拼多多购买下载安装，而且不需要翻墙就能使用哦）
 
-电报群：1⃣️群：  https://t.me/HJSQ0    2⃣️群： https://t.me/haijiaocc  （需要科学上网才能加入）
+电报群：1⃣️群：  https://t.me/haijiaofun1    （需要科学上网才能加入）
 
 
 福利拓展，都是精品，狼友必备软件
