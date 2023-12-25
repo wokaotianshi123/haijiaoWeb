@@ -3,7 +3,8 @@
  最新回家地址 👋 (最新更新时间2023-12-22)
 
 海角乱伦社区 网页版 最新地址  https://uf3.ydwzsp.com
-海角乱伦社区 网页版中转  haijiao.one
+
+海角乱伦社区 网页版中转   https://haijiao.one
 
 海角乱伦社区 app 最新地址  https://h99.zpybih.com
 
