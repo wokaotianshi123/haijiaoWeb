@@ -25,13 +25,13 @@
 
 福利拓展，都是精品，狼友必备软件
 
- 海角乱伦社区   https://haijiao.otjwrzge.com（禁止直接点击访问）请复制链接粘贴到浏览器
+ 海角乱伦社区  https://sina.gqfkdyx.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
 暗网禁区  https://fuh3.rzgtiv.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
-缅北禁地     https://ameike.rvlly467.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
+缅北禁地   https://tmall.ukacx.com （禁止直接点击访问）请复制链接粘贴到浏览器打开
 
-草榴社区  https://wechat.pvzpmhz.com（禁止直接点击访问）请复制链接粘贴到浏览器
+草榴社区  https://sogou.kbuac.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
 AI色色   https://jk88.cvmgtn.com  （禁止直接点击访问）请复制链接粘贴到浏览器
 
