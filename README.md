@@ -25,23 +25,26 @@
 
 福利拓展，都是精品，狼友必备软件
 
- 海角乱伦社区  https://sina.gqfkdyx.com（禁止直接点击访问）请复制链接粘贴到浏览器
+海角乱伦社区 https://e8ab.zgjyeitq.news（禁止直接点击访问）请复制链接粘贴到浏览器
 
-暗网禁区  https://fuh3.rzgtiv.com（禁止直接点击访问）请复制链接粘贴到浏览器
+暗网禁区 https://e4b6.ydeaozql.vip（禁止直接点击访问）请复制链接粘贴到浏览器
 
-缅北禁地   https://tmall.ukacx.com （禁止直接点击访问）请复制链接粘贴到浏览器打开
+缅北禁地 https://b079.cjchtrhd.club（禁止直接点击访问）请复制链接粘贴到浏览器打开
 
-草榴社区  https://sogou.kbuac.com（禁止直接点击访问）请复制链接粘贴到浏览器
+草榴社区 https://a9.tihlrhpe.vip（禁止直接点击访问）请复制链接粘贴到浏览器
 
-AI色色   https://jk88.cvmgtn.com  （禁止直接点击访问）请复制链接粘贴到浏览器
+外网天堂 https://df.spziicli.news（禁止直接点击访问）请复制链接粘贴到浏览器
+
+AI色色 https://cc.cvmgtn.com （禁止直接点击访问）请复制链接粘贴到浏览器
 
 换妻俱乐部： https://cdb0.xfcjat.com （ 禁止直接点击访问）请复制链接粘贴到浏览器
 
-91AV： https://4369.xpmbxi.com（禁止直接点击访问）请复制链接粘贴到浏览器
+91AV： https://51b.taomimis.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
-成人b站：  https://401c.cuorts.com （ 禁止直接点击访问）请复制链接粘贴到浏览器打开
+成人b站： https://3e81.aljjqfulm.club（ 禁止直接点击访问）请复制链接粘贴到浏览器打开
 
-成人快手：   https://c96.qmfjsi.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
+成人快手： https://22.kuaiszb.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
+
 请复制链接粘贴到 手机自带浏览器，谷歌浏览器，uc浏览器，夸克浏览器，火狐浏览器打开，安卓手机下载后请立即关闭网络安卓，联网会检测出成人内容导致无法安装。
 
 如遇网址都无法打开，请发送任意文字到邮箱  aidingzhi01@gmail.com 获取最新链接
