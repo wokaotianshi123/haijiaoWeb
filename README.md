@@ -2,11 +2,11 @@
  
  最新回家地址 👋 (最新更新时间2024-3-5)
 
-海角乱伦社区 网页版 最新地址  https://127e.nhhjboejby.com
+海角乱伦社区 网页版 最新地址  https://b5862d.nhhjboejby.com
 
 海角乱伦社区 网页版中转   https://haijiao.one
 
-海角乱伦社区 app 最新地址 https://835c7c5.zgjyeitq.news
+海角乱伦社区 app 最新地址  https://d80c4d.zgjyeitq.news
 
 【请复制链接粘贴到 手机自带浏览器，谷歌浏览器，uc浏览器， 火  狐  浏览器 打开，如哪个网址打不开请回复我们，帮助我们加快恢复处理】禁止用QQ、百度 浏览器。
 
@@ -25,9 +25,9 @@
 
 福利拓展，都是精品，狼友必备软件
 
-海角乱伦社区  https://e8ab.zgjyeitq.news（禁止直接点击访问）请复制链接粘贴到浏览器
+海角乱伦社区   https://d80c4d.zgjyeitq.news（禁止直接点击访问）请复制链接粘贴到浏览器
 
-暗网禁区  https://6dbf4.ajgflbimp.org（禁止直接点击访问）请复制链接粘贴到浏览器
+暗网禁区   https://9360.ajgflbimp.org （禁止直接点击访问）请复制链接粘贴到浏览器
 
 缅北禁地  https://b079.cjchtrhd.club（禁止直接点击访问）请复制链接粘贴到浏览器打开
 
